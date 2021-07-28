@@ -3,4 +3,6 @@ He can sense enroaching danger...   Today the Senju's will of fire shall be exti
 
 Naruto will have no other choice. He'll have to battle White Zetsu.
 
-random side character:
+tsunade's snail:Naruto will be allowed to proceed. So...
+
+Some side character:I can't believe it.How did Naruto convince lord Raikage to let him go?
